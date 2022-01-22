@@ -1,0 +1,1 @@
+# yamagutizyoiti.github.io
